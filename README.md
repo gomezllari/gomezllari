@@ -24,5 +24,4 @@ Além da tecnologia, tenho **10 anos de vivência no tradicionalismo gaúcho**, 
 ---
 📫 **Vamos nos conectar?**
 [LinkedIn](https://www.linkedin.com/in/larigomes03/) | [E-mail](mailto:larissasgomess12@gmail.com)
-[LinkedIn](https://www.linkedin.com/in/larigomes03/) | [E-mail](mailto:larissasgomess12@gmail.com)
 
